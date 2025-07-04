@@ -1,1 +1,1 @@
-# WISE2025
+# KGMA.github.io
